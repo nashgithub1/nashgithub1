@@ -1,1 +1,1 @@
-IT Undergraduate | Rajarata University, Sri Lanka 🇱🇰 | Enthusiastic about Data Science , Machine Learning and Web Development
+IT Grad | Rajarata University, Sri Lanka 🇱🇰 | Data Science | Machine Learning | Web Development
